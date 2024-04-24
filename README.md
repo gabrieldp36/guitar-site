@@ -1,4 +1,4 @@
-
+![portada](https://github.com/gabrieldp36/guitar-site/assets/88417383/c662b9cb-7972-429d-a03d-bba258db4001)
 
 # GuitarLA.
 
